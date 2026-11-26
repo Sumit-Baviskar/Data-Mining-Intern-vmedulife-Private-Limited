@@ -1,4 +1,4 @@
-# **Data-Mining-Intern-vmedulife-Private-Limited**
+# **Data Mining Intern @vmedulife Private Limited**
 
 ## **Experience Description :**
 
